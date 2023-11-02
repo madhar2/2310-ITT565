@@ -18,7 +18,7 @@
 
 #### Submission
 1. STAVEHOGANS ANAK JOHN LITTLE
-[<img src="https://www.craiglarman.com/wiki/images/4/4d/Icon-video.jpg" width="600" 
+[<img src="https://www.craiglarman.com/wiki/images/4/4d/Icon-video.jpg" width="300" 
 />](https://www.canva.com/design/DAFxhn18qlk/y3lgPjg7FP4AWf7cP0pXDA/watch?utm_content=DAFxhn18qlk&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 2. NURIN AIZA BINTI ABDUL AZIZ (Google Drive)
